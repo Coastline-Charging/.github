@@ -19,6 +19,6 @@ We’ll be using this space to:
 
 Whether you're here to learn, contribute, or collaborate — welcome.
 
-**Website:** [https://coastlinecharging.com](https://coastlinecharging.com)  
+**Website:** [coastlinecharging.com](https://coastlinecharging.com)  
 **Support:** [support@coastlinecharging.com](mailto:support@coastlinecharging.com)  
-**Socials:** [@CoastCharge](https://x.com/CoastCharge)
+**Socials:** [X (Twitter)](https://x.com/CoastCharge) • [Instagram](https://instagram.com/coastlinecharging) • [TikTok](https://www.tiktok.com/@coastlinecharging) • [Facebook](https://facebook.com/coastlinecharging)
